@@ -2,4 +2,4 @@
 
 Esta serie de libros cuentan la historia de un hacer de los que hay pocos.
 
-**Evelin Arboleda**
+**Evelin Arboleda**, Larry plotter.
